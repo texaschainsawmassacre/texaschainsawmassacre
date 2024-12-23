@@ -3,5 +3,6 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ccuakfop2nbrlfgknd5fracn3i&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=f3f1e0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=texaschainsawmassacre&style=for-the-badge&color=DA1C02)
 
