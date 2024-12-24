@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=texaschainsawmassacre&style=flat-square&color=DA1C02&label=MARTIANS)
+‎[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ccuakfop2nbrlfgknd5fracn3i&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=fbfbfb&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 i give up trying to allign this
 
@@ -6,6 +6,9 @@ i give up trying to allign this
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‎ ㅤㅤ‎ ![](https://64.media.tumblr.com/539d48a86a64d85b88d1b2c5a1e97473/76f82df24fa57a43-86/s400x600/5d9c59b476c22b616ab3b13d5b5ed44e43cc0bf1.gifv)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‎![](https://komarev.com/ghpvc/?username=texaschainsawmassacre&style=flat-square&color=DA1C02&label=MARTIANS)
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/bl1p6i.png)ㅤ
@@ -16,5 +19,6 @@ i give up trying to allign this
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/bl1p6i.png)ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/4kvprj.png)ㅤ
