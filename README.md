@@ -10,7 +10,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[send me something!!](https://lazerbeammm.straw.page/)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‎ㅤ![](https://komarev.com/ghpvc/?username=texaschainsawmassacre&style=flat-square&color=DA1C02&label=MARTIANS)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‎![](https://komarev.com/ghpvc/?username=texaschainsawmassacre&style=flat-square&color=DA1C02&label=MARTIANS)
 
 
 
