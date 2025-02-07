@@ -4,6 +4,3 @@ hi bye
 
 [atabook](https://bombtrack.atabook.org/)
 
-
-![image](https://github.com/user-attachments/assets/2d707a6f-6fc2-49e8-845d-fae24bd1da48)
-
