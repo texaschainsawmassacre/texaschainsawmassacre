@@ -1,7 +1,7 @@
 hi bye
 my top interests r the banana bus squad & saw
 
-i am so so so so awkward sorry if i don't respond 2 u
+i am so awkward sorry if i don't respond 2 u
 
 ![tumblr_nnmz9eEq6s1u8tbq4o1_500](https://github.com/user-attachments/assets/f36d3f4c-2ffa-4274-b292-eaaa8b2ff750)
 
