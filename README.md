@@ -1,5 +1,5 @@
 hi bye
-my top interests r the banana bus squad & saw
+my top interests r the banana bus squad & saw / big movie nerd
 
 i am so awkward sorry if i don't respond 2 u
 
