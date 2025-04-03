@@ -11,3 +11,4 @@ i am so awkward sorry if i don't respond 2 u
 
 [atabook](https://bombtrack.atabook.org/)
 
+![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/bacc83da-b294-40f7-85d9-6434a9378307/d79q2hz-4454d018-008d-44e5-b81a-4d9342883d2a.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2JhY2M4M2RhLWIyOTQtNDBmNy04NWQ5LTY0MzRhOTM3ODMwN1wvZDc5cTJoei00NDU0ZDAxOC0wMDhkLTQ0ZTUtYjgxYS00ZDkzNDI4ODNkMmEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.tViD7llJHqmKBR8dJIi7pFDQdgHUkTLpryv62qxLBdg)
