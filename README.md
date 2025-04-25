@@ -1,6 +1,6 @@
 hi bye
 
-i rlly like sm64 myths & conspiracies, anti-piracy screens, & horrorbrews
+i rlly like sm64 myths & conspiracies, anti-piracy screens, romhacks & horrorbrews
 
 i am so awkward sorry if i don't respond 2 u
 
