@@ -2,14 +2,25 @@ hi bye
 
 i rlly like sm64 myths & conspiracies, anti-piracy screens, & horrorbrews
 
-some specific things i like r sm64 classified, marios madness, and hypnos lullaby
-
+some specific things i like r sm64 classified, marios madness, hypnos lullaby, mario '85
 i am so awkward sorry if i don't respond 2 u
 
 [atabook](https://bombtrack.atabook.org/)
 
 
-![tumblr_nnmz9eEq6s1u8tbq4o1_500](https://github.com/user-attachments/assets/f36d3f4c-2ffa-4274-b292-eaaa8b2ff750)
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
