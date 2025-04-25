@@ -1,5 +1,8 @@
 hi bye
-my top interests r the banana bus squad & saw / big movie nerd
+
+i rlly like sm64 myths & conspiracies, anti-piracy screens, & horrorbrews
+
+some specific things i like r sm64 classified, marios madness, and hypnos lullaby
 
 i am so awkward sorry if i don't respond 2 u
 
