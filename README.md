@@ -4,7 +4,7 @@ i rlly like sm64 myths & conspiracies, anti-piracy screens, romhacks & horrorbre
 
 specific things i like r marios madness, sm64 classified, & power star
 
-i am so awkward sorry if i don't respond 2 u
+w2i if i don't respond 2 u, i'm usually offtab
 
 
 ![image](https://github.com/user-attachments/assets/25343c41-09ec-45b6-a9c0-576015c47883)
