@@ -1,6 +1,6 @@
 hi bye
 
-i rlly like sm64 myths & conspiracies, anti-piracy screens, romhacks & horrorbrews
+i rlly like sm64 myths & hoaxes, anti-piracy screens, romhacks & horrorbrews
 
 specific things i like r marios madness, hypnos lullaby, sm64 classified, power star, & saw (#1 mallick fan)
 
