@@ -10,7 +10,7 @@ w2i if i don't respond 2 u, i'm usually offtab
 [alt acc](https://github.com/djhallyboo)
 
 
-![k5s395](https://files.catbox.moe/acuqjn.gif)
+![k5s395](https://files.catbox.moe/0dh91r.gif)
 
 
 
