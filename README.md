@@ -7,7 +7,7 @@ marios madness, pokepastas, sm64 classified, power star, & saw (#1 mallick fan)
 
 w2i if i don't respond 2 u, i'm usually offtab
 
-[acc alt](https://github.com/djhallyboo)
+[alt acc](https://github.com/djhallyboo)
 
 
   ![image](https://github.com/user-attachments/assets/eac87c2e-2876-4e8b-bcb8-fa279b06f73d)
