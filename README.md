@@ -1,5 +1,5 @@
 
-hi bye
+hi bye, i don't wanna make a rentry so js take this for now
 
 i rlly like sm64 myths & hoaxes, anti-piracy screens, romhacks, horrorbrews,
 
