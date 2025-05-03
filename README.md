@@ -3,7 +3,7 @@ hi bye
 
 i rlly like sm64 myths & hoaxes, anti-piracy screens, romhacks & horrorbrews
 
-specific things i like r marios madness, hypnos lullaby, sm64 classified, power star, & saw (#1 mallick fan)
+specific things i like r marios madness, pokepastas, sm64 classified, power star, & saw (#1 mallick fan)
 
 w2i if i don't respond 2 u, i'm usually offtab
 
