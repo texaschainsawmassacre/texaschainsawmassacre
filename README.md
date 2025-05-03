@@ -12,7 +12,11 @@ w2i if i don't respond 2 u, i'm usually offtab
 
   ![image](https://github.com/user-attachments/assets/eac87c2e-2876-4e8b-bcb8-fa279b06f73d)
 
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ccuakfop2nbrlfgknd5fracn3i&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+   ![image](https://github.com/user-attachments/assets/5702eca6-e87a-4824-9ca9-d8bcf1924d21)
+
+  ![image](https://github.com/user-attachments/assets/a57f23f5-c8f9-4358-a819-dad2a9fd3ef2)
+
 
 
 
