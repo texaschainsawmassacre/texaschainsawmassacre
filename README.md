@@ -15,3 +15,14 @@ w2i if i don't respond 2 u, i'm usually offtab
 i yearn for bloodysystem content
 
 
+
+
+
+
+
+https://github.com/user-attachments/assets/fc132621-43a1-473d-a281-44bc7163f226
+
+
+
+
+
