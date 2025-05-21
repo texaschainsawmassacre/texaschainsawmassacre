@@ -2,7 +2,7 @@ hi bye
 
 i like horrorbrews, rblx anomalies/myths, & exploiters
 
-big hjd fan woowowowooo!!!!!!!!!!
+big hjd/hajd fan woowowowooo!!!!!!!!!!
 
 [alt acc](https://github.com/djhallyboo)
 
