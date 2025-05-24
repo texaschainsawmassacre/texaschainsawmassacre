@@ -3,6 +3,10 @@ hi bye
 i like horrorbrews, rblx anomalies/myths, & exploiters
 
 i rlly love the saw & final destination franchises
+
+
+![image](https://github.com/user-attachments/assets/e0a38d61-5943-469d-af72-1d45eb7582ba)
+
 ![Gq1E9VGWwAAj9F4](https://github.com/user-attachments/assets/ef492a68-c763-4772-9901-db42db8d94ff)
 
 
