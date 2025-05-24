@@ -4,11 +4,7 @@ i like horrorbrews, rblx anomalies/myths, & exploiters
 
 i rlly love the saw & final destination franchises
 
-
 ![image](https://github.com/user-attachments/assets/e0a38d61-5943-469d-af72-1d45eb7582ba)
-
-![Gq1E9VGWwAAj9F4](https://github.com/user-attachments/assets/ef492a68-c763-4772-9901-db42db8d94ff)
-
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qg44x6al5zm3dfp5aicujdqwl4&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
